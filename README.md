@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @lion
 - 👀 I’m interested in everything.
-- 🌱 I’m currently learning new tech.
 - 💞️ I’m looking to collaborate online..
 - 📫 How to reach me? i think just message on...
 
